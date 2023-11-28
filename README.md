@@ -21,5 +21,7 @@ While READMEs can be written in any text file format, the most common one that i
 It seems i'm begining to fall in love with Halleluyah and i don't understand why
 what is wrong with me pls.
 Did you think i should talk to her about it or I should just live with it. 
+
+ And I love it when she call's sammmmm. It gladdens my heart. 
     
     She message me this morning and I was happy to be of help. 
